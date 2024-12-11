@@ -1,2 +1,2 @@
 Incheon National Univ.
-UNI's Day
+UNI's Days
